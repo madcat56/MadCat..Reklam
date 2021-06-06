@@ -1,2 +1,2 @@
-# PARTNER--BOT-ARBELE
+# PARTNER Bot MadCat
  بــۆتـــے پــارتنـــەر
